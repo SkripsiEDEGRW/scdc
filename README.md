@@ -1,4 +1,1 @@
-scdc
-====
-
-Sturent Creativity Development Center
+YANG DIUPLOAD CUMA DESIGN HTML DOANG YAH ! SISANYA JANGAN ! SOALNYA INI PUBLIC !
